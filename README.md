@@ -1,4 +1,4 @@
-![portad-1](https://github.com/user-attachments/assets/5573829d-4607-40ac-a29e-91571881ec41)
+![portad-2](https://github.com/user-attachments/assets/c4956497-4d54-476b-846c-682f10daf11c)
 
 About me:
 👋 Hi everyone!, I’m Carlos Silva, I'm a Junior web Developer. I want to learn more, help me please. Thank you!
